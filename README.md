@@ -1,0 +1,1 @@
+# advanced-easy-shipping-for-woocommerce-lite
